@@ -1,1 +1,1 @@
-Coming Soon Template
+Free template taken from the internet and modified
